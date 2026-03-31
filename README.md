@@ -1,2 +1,2 @@
 # Brayo
-Hello World!, this is my profilec👏
+Hello World!, this is my profile👏
